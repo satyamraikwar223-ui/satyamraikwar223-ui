@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m currently working on my coding and English communication skills <br>Also focusing on Ai skills ( like prompting, vine coding etc)
+I’m currently working on my coding and English communication skills <br>Also focusing on Ai skills ( like prompting, vibe coding etc)
 
 
 ## 🌐 Socials:
